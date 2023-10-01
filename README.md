@@ -20,5 +20,3 @@
 ---
 
 感谢在[此推文](https://twitter.com/taranakineko/status/1708186494555316341)下回复的各位💖
-
-<blockquote class="twitter-tweet"><p lang="zh" dir="ltr">话说回来<br>大家所在的城市的交通卡提供官方的「实体卡卡面定制服务」吗？<br><br>目前已知广州/佛山支持定制…🤔</p>&mdash; // 千畔 🌌 (@taranakineko) <a href="https://twitter.com/taranakineko/status/1708186494555316341?ref_src=twsrc%5Etfw">September 30, 2023</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script> 
